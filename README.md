@@ -6,4 +6,4 @@ ${\color{blue} maria/marie}$
 
 ![maria_robotnik](mariraa.webp)
 
-${\color{blue} the / maria / robotnik / of / pony / town}$
+${\color{blue} i'll / see / you / on / the / moon...}$
