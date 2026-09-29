@@ -6,6 +6,6 @@ ${\color{blue} maria/marie}$
 
 ![maria_robotnik](mariraa.webp)
 
-*ponytown’s live and learn - crush 40*
+*ponytown’s maria robotnik & kylie/unnamed amy vessel*
 
 ${\color{blue} i'll / see / you / on / the / moon...}$
