@@ -6,6 +6,6 @@ ${\color{blue} maria/marie}$
 
 ![maria_robotnik](mariraa.webp)
 
-${\color{blue} ponytown’s / mariarobotnik / kylie/UAV / live and learn / beauty / we're gonna win / (with @theemotionalside)}$
+${\color{blue} ponytown’s / mariarobotnik / kylie / live and learn / beauty / we're gonna win (with @theemotionalside)}$
 
 *i'll  see  you  on  the  moon...*
